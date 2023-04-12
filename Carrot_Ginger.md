@@ -8,10 +8,10 @@
 - tbsp ginger
 - tsp sesame oil
 - tsp honey
-- salt to taste
+- 1tsp salt to taste
 
 ## Preparation
 
-combine in food processor, salt/garlic to taste
+combine in food processor, salt/vinegar/honey to taste
 
 
