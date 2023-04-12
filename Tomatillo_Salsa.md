@@ -5,6 +5,7 @@
 - 8 oz tomatillos, husked
 - cilantro, as much as you like
 - 1 onion
+- 1 Jalapeno pepper
 - salt, pepper
 - 1-2tbsp  apple cider vinegar
 - 1 Avocado
