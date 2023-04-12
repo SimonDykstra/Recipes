@@ -12,5 +12,5 @@
 ## Preparation
 1. Cut onion in half and soak in water
 2. Husk an Wash the tomatillos to remove sticky residue
-3. Roast tomatillos over fire or broil until nice and brown or charred
+3. Roast tomatillos amd peppers over fire or broil until nice and brown or charred
 4. Blend ingredients in food processor or blender
